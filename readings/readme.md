@@ -1,0 +1,1 @@
+Evidence I completed the assigned readings collaboratively, including my responses to others, can be found with the Jon Udell viewer, link [here](http://jonudell.net/h/facet.html?facet=user&mode=documents&search=jacqueline.lee). In case this link does not work, I also saved the data and have uploaded it into this folder as well.
